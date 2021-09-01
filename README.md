@@ -1,5 +1,3 @@
 # preparation1
 First repository on GitHub!
-![][1]
-:
-[1](https://gfycat.com/willingfrailasiandamselfly-exhausted-sleepy-tired)
+![](https://media.giphy.com/media/3o6wrvdHFbwBrUFenu/giphy.gif)
